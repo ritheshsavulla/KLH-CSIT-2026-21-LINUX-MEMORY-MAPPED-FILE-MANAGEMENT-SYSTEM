@@ -15,7 +15,7 @@
 
 ### Supervisor
 
-**[Supervisor Name]**
+**[Mr. M. Raghupathi]**
 
 ---
 
